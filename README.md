@@ -7,5 +7,5 @@ $\text{\color{#d4d4d4}{i love my beautiful boyfriend}}$ <br>
 
 
 <p align="center">
-<img src="https://files.catbox.moe/c84lbl.png"/>
+<img src="https://files.catbox.moe/thg6kc.png"/>
 </p>
