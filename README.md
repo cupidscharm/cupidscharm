@@ -1,8 +1,8 @@
-$\text{\color{#e4e4e4}{RANPO WAS HERE!!!!!!!!!!!!!! @RANPOS}}$ <br>
+$\text{\color{#ffffff}{RANPO WAS HERE!!!!!!!!!!!!!! @RANPOS}}$ <br>
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 
-$\text{\color{#e4e4e4}{i love my beautiful boyfriend}}$ <br>
+$\text{\color{#ffffff}{i love my beautiful boyfriend}}$ <br>
 
 
 
